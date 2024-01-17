@@ -1,0 +1,1 @@
+# frequencias_e_medidas
